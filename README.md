@@ -11,6 +11,6 @@ hubungi no dibawah ini
 
 https://pkljurusanmplbkotacimahi.blogspot.com/
 
-https://pkljurusanmplbkotacimahi.blogspot.com/2024/12/085624371576lowongan-pkl-akuntansi.html
+https://pkljurusanmplbkotacimahi.blogspot.com/2024/12/085624371576program-pkl-akuntansi.html
 
 https://www.edocr.com/v/r2ojlge1/parizpkl/085624371576pkl-akuntansi-di-cisaruapelatihan-akun
